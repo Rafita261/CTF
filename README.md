@@ -114,7 +114,7 @@ Les étudiants qui ont réussi **les 7 niveaux** doivent m’envoyer un **messag
 
 Contact :
 
-[**Fitahiana Christalin RATSIMBAZAFY**](facebook.com/fitahiana.christalin)
+[**Fitahiana Christalin RATSIMBAZAFY**](https://facebook.com/fitahiana.christalin)
 
 ---
 
